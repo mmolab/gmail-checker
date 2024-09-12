@@ -10,6 +10,6 @@ https://www.youtube.com/watch?v=tqnYNhP6QBc
 
 Easily connect the API to our service. Visit now: https://sieuclone.net/gmail-checker
 
-CONTACT TELE: @mmolab [https://t.me/@mmolab](https://t.me/mmolab)
-WEBSITE: HTTPS://SIEUCLONE.NET/GMAIL-CHECKER
-BUY SCRIPT: @mmolab [https://t.me/@mmolab](https://t.me/mmolab)
+- CONTACT TELE: @mmolab [https://t.me/@mmolab](https://t.me/mmolab)
+- WEBSITE: HTTPS://SIEUCLONE.NET/GMAIL-CHECKER
+- BUY SCRIPT: @mmolab [https://t.me/@mmolab](https://t.me/mmolab)
